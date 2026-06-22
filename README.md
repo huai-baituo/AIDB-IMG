@@ -3,3 +3,4 @@ HIBANG :"Projek Bareng Kalian Kerja jeng Masa gwej doang jeng capek tau, gwej ju
 YANYUN :"UASU UDH PUNYA LILOT ENTE JENG!!"
 
 "fineshyt ribet" -yann
+"aku ingin menghilang" -yann
