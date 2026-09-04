@@ -4,3 +4,4 @@ YANYUN :"UASU UDH PUNYA LILOT ENTE JENG!!"
 
 "fineshyt ribet" -yann
 "aku ingin menghilang" -yann
+"aku suka tomboy" -yann
